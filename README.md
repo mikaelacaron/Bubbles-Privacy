@@ -1,7 +1,7 @@
 # Bubbles Privacy Privacy and Terms and Conditions
 
 ## Introduction
-By using “”, you agree to our Terms of Use and our Privacy Policy. I invite you to fully read this page and make sure you understand its content prior to using “Bubbles”.
+By using “Bubbles”, you agree to our Terms of Use and our Privacy Policy. I invite you to fully read this page and make sure you understand its content prior to using “Bubbles”.
 
 Bubbles: Terms of Use & Privacy Policy
 Mikaela Caron operates the website and the “Bubbles” mobile application (the “Service”) (name on the App Store subject to change for search and discovery purposes).
